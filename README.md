@@ -1,0 +1,6 @@
+![html linux 1](https://github.com/user-attachments/assets/b3db93e8-90b5-49e3-bae0-c5f3ac65aadc)
+![html linux 3](https://github.com/user-attachments/assets/14a6d466-81c7-4148-a89f-9239558130cf)
+![html linux 4](https://github.com/user-attachments/assets/9f9140b9-b4bf-4885-a9eb-8bd4b9bc54d8)
+![html linux 5](https://github.com/user-attachments/assets/6e30913f-1af3-41f3-b6e2-9a41ffbed91d)
+![html linux 6](https://github.com/user-attachments/assets/c6dce225-8562-46c5-87c1-f8b85572f1c2)
+![html linux 2](https://github.com/user-attachments/assets/4d0d4229-d53e-49e2-bb7e-066ac5fec032)
